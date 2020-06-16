@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Hi, my name is Sebastian Milewski
 
-I'm glad you are here. I plan to talk about ...
+The only social media platform that I use is Instagram, and my username is @tps_trading.
+My brag sheet information is that I currently have two part-time jobs, I play volleyball for the school team and outside of school, and I was awarded two senior awards this past week.
